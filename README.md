@@ -1,4 +1,8 @@
-hi! i have my ponytown brightness set very low because i have chronic migraines
+im extremely friendly! anyone and everyone can int. we dont have to have skins from the same fandom, i dont mind sitting with people from fandoms i dont even know hehe
+
+im a big sweetheart and will randomly give people compliments, which doesnt mesh well with my **bad memory**. i may accidentally compliment you twice. but the more the merrier! ^_^
+
+i have my ponytown brightness set very low because i have chronic migraines
 
 
 it may take me a moment to actually notice youre there.. please forgive me!!
@@ -6,5 +10,4 @@ it may take me a moment to actually notice youre there.. please forgive me!!
 
 if it looks like im ignoring u i swear on my life im not
 
-
-im extremely friendly! anyone and everyone can int. we dont have to have skins from the same fandom, i dont mind sitting with people from fandoms i dont even know hehe
+typology for the neurodivergent; sanguine [dominant], lawful good, enfp, 792, so/sx, 7w6
