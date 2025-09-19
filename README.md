@@ -13,7 +13,7 @@ i appreciate nicknames like seran, yeye/yeon, two and 9887 but i also go by bene
 
 `i have` a selective memory and very bad amnesia. i may forget names, birthdays, plans or other things. small details are very hard for me to remember so please be patient!!
 
-`i am` a neptune (solarballs) fictive! i am also very attached/kin to astro from dandys world and benny from the lego movie! 
+`i am` a neptune (solarballs) fictive! i am also very attached/kin to blot and astro from dandys world and benny from the lego movie! 
 
 i love interacting with sourcemates and would love to meet more people who share interests like me! such as.. bleach, dandys world, forsaken, jurassic world, solarballs,  epic the musical, hamilton, pressure, osc and blocktales! i have a bunch more interests.. just cant remember them LOL
 
