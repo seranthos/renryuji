@@ -1,7 +1,7 @@
 ![](https://file.garden/aB7K_pCIy0NhQreS/%F0%9F%AA%BC%F0%9F%AB%A7%20-%20REGINA%20OF%20ALL%20WATERS%20(1)%20(1).gif)
 ![](https://file.garden/aB7K_pCIy0NhQreS/%F0%9F%AA%BC%F0%9F%AB%A7%20-%20REGINA%20OF%20ALL%20WATERS%20(1)%20(5).png)
 `my name` is **seranthos** ho-yeon or **twoletter9887**
-i appreciate nicknames like seran, yeye/yeon, two and 9887 but i also go by benefit, farfetched and funfetti!
+i appreciate nicknames like seran, yeye/yeon, two and 9887 but i also go by benefit/benny, farfetched and funfetti! 
 
 `my pronouns` are he any [pronouns cc](https://pronouns.cc/@hoyeon)
 
@@ -12,6 +12,10 @@ i appreciate nicknames like seran, yeye/yeon, two and 9887 but i also go by bene
 `i am` a medically recognized system and i have (diagnosed); tobs, autism, adhd, schizophrenia, narcolepsy, astigmatism, ocd && more
 
 `i have` a selective memory and very bad amnesia. i may forget names, birthdays, plans or other things. small details are very hard for me to remember so please be patient!!
+
+`i am` a neptune (solarballs) fictive! i am also very attached/kin to astro from dandys world and benny from the lego movie! 
+
+i love interacting with sourcemates and would love to meet more people who share interests like me! such as.. bleach, dandys world, forsaken, jurassic world, solarballs,  epic the musical, hamilton, pressure, osc and blocktales! i have a bunch more interests.. just cant remember them LOL
 
 𓎡 ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜  ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ 𓎢
 
