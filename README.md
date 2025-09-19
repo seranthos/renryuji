@@ -9,6 +9,8 @@ i appreciate nicknames like seran, yeye/yeon, two and 9887 but i also go by bene
 
 `my types` is ENFP 7w6 sx/so 729 IEE EVLF Sanguine-Melancholic SLUAI Chaotic Good Ne dom Inf se
 
+`i am` mlm, and primarily unlabeled. im aiab ctm! im also taken by my very loving bf.. I LOVE YOU SEBBY!!
+
 `i am` a medically recognized system and i have (diagnosed); tobs, autism, adhd, schizophrenia, narcolepsy, astigmatism, ocd && more
 
 `i have` a selective memory and very bad amnesia. i may forget names, birthdays, plans or other things. small details are very hard for me to remember so please be patient!!
