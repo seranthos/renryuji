@@ -12,7 +12,7 @@ i appreciate nicknames like seran, two and 9887 but i also go by benefit/benny, 
 
 `i have` a selective memory and very bad amnesia. i may forget names, birthdays, plans or other things. small details are very hard for me to remember so please be patient!!
 
-i love interacting with people and would love to meet more people who share interests like me! such as.. bleach, dandys world, forsaken, jurassic world, solarballs,  epic the musical, hamilton, pressure, osc and blocktales! i have a bunch more interests.. just cant remember them LOL
+i love interacting with people and would love to meet more people who share interests like me! such as.. bleach, dandys world, demon slayer, jurassic world, solarballs,  epic the musical, hamilton, osc and blocktales! i have a bunch more interests.. just cant remember them LOL
 
 𓎡 ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜  ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ ◞◟ ͜ 𓎢
 
